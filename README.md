@@ -1,5 +1,10 @@
-## I like kids
-  
-## I hate niggers
+ 
+# ÖLF 
+
+## Fortnite Battlepass
+
+## Oi Oi Oi Baaaakaa!
+
+# erm what the sigma
   
 💅💅
