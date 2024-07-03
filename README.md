@@ -1,7 +1,5 @@
-<pre>
-##I like kids
+## I like kids
   
-##I hate niggers
+## I hate niggers
   
 💅💅
-</pre>
